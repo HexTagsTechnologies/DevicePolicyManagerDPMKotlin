@@ -1,4 +1,4 @@
-© 2025 HexTags Technologies. All rights reserved. HexTags Technologies is your strategic partner in innovation, offering technology solutions that enhance performance, streamline operations, and support long-term success.
+© 2026 HexTags Technologies. All rights reserved. HexTags Technologies is your strategic partner in innovation, offering technology solutions that enhance performance, streamline operations, and support long-term success.
 
 
 
